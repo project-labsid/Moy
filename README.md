@@ -1,2 +1,0 @@
-# Moy
-ulang tahun mila
